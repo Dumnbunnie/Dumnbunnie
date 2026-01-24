@@ -3,4 +3,5 @@
 ‍⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀
 ![Screenshot_20251230-211851 (1)](https://github.com/user-attachments/assets/9613b981-f083-45c4-acfb-dedc6a1d4add)
 ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ 
-𝘒ya!! 🌸 𝘠і᥆ ᥡ mі ᥲᥣ𝖿ᥲ g᥆𝗍іᥴᥲ 𝗊ᥙᥱ ᥲm᥆ ᥴ᥆ᥒ 𝗍᥆ძ᥆ mі sᥱr (>//.//<) 
+𝘒ya!! 𝘠і᥆ 𝘺 mі ᥲᥣ𝖿ᥲ 𝘨𝘰𝗍іᥴᥲ 𝗊ᥙᥱ 𝗮𝗺𝗼 ᥴ᥆ᥒ 𝗍᥆ძ᥆ mі sᥱɾ![Screenshot_20251228-011904 (1)](https://github.com/user-attachments/assets/d687b33b-e549-4638-9fea-e60a8ebc51e7)
+ (>//.//<) 
