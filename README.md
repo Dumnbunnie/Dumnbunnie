@@ -1,3 +1,4 @@
 ────────────୨ৎ────────────────────
-Screenshotshot_20260123-213113 (1) (1)](https://github.com/user-attachments/assets/6c2d615b-93c6-464b-a10e-ac7349c08485⠀
+![Screenshot_20260123-213113 (1) (1)](https://github.com/user-attachments/assets/cd6439da-fec6-46b7-b308-9ed7cefba5e0)
+
 ⠀‍⠀ ⠀ ⠀ ⠀ ⠀𝐌𝚎 𝚊𝚗𝚍 ᴡ𝚑𝚘? ꒰ᐢ ◞‸◟ᐢ꒱
