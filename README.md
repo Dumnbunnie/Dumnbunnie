@@ -1,1 +1,3 @@
-![16b8c2a4c98ee430cdb647dff3a9b269](https://github.com/user-attachments/assets/3735f9db-01d5-4d24-9f5b-34f6883a6a5b)
+![20260114_182328](https://github.com/user-attachments/assets/6c7e15c9-a005-4625-ba21-bac3a9e3ea53)
+
+⠀ ⠀ ⠀ ⠀ ⠀⠀𝐌𝚎 𝚊𝚗𝚍 ᴡ𝚑𝚘? ꒰ᐢ ◞‸◟ᐢ꒱
