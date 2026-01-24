@@ -1,5 +1,1 @@
-![Screenshot_20260123-213113 (1) (1)](https://github.com/user-attachments/assets/508476c2-1f61-4452-a5ae-bcfdc0efb978)
-
-
-
-⠀‍⠀ ⠀ ⠀ ⠀ ⊱⠀𝐌𝚎 𝚊𝚗𝚍 ᴡ𝚑𝚘? ꒰ᐢ ◞‸◟ᐢ꒱
+![16b8c2a4c98ee430cdb647dff3a9b269](https://github.com/user-attachments/assets/3735f9db-01d5-4d24-9f5b-34f6883a6a5b)
