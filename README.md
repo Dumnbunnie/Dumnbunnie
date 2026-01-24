@@ -1,3 +1,4 @@
-![20260114_182328](https://github.com/user-attachments/assets/6c7e15c9-a005-4625-ba21-bac3a9e3ea53)
+![18d1f5a82f4ee4b03b72cae51d915f36](https://github.com/user-attachments/assets/c8fdcde4-a072-4073-9eae-cd8d45e1e2b7)
+
 
 ⠀ ⠀ ⠀ ⠀ ⠀⠀𝐌𝚎 𝚊𝚗𝚍 ᴡ𝚑𝚘? ꒰ᐢ ◞‸◟ᐢ꒱
