@@ -2,7 +2,7 @@
 
 𝐌𝚎 𝚊𝚗𝚍 sandia!!<3⠀ ⠀ ⠀ ⠀‍‍‍⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ (ғᴜɪ ᴏʙʟɪɢᴀᴅᴀ😳)
 ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀
-⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀𝚖𝚒 𝚎𝚜𝚌𝚕𝚊𝚟𝚊 <𝟹.
+⠀ ⠀ ⠀ ⠀ ⠀⠀ 𝟯Ｙ𝚎𝚊𝚛ׅ𝚜.⠀𝚖𝚒 𝚎𝚜𝚌𝚕𝚊𝚟𝚊 <𝟹.
 
 ![Screenshot_20251230-211851 (1)](https://github.com/user-attachments/assets/331d9621-d1d5-4b34-873a-78489c3dcf6e)
 ![Screenshot_20251228-011904 (1)](https://github.com/user-attachments/assets/798ba581-6dc3-4ac5-8352-c07cadb81ff9)
