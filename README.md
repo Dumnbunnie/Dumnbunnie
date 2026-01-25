@@ -7,5 +7,5 @@
  ![Screenshot_20251228-011904 (1)](https://github.com/user-attachments/assets/a1dcfca8-deaa-46c3-82a9-ad4380f7372e)
 
 
- (>//.//<)
+ ᥒᥱᥴᥱsі𝗍᥆ ᥲmіg᥆s 𝗊ᥙᥱ ᥣᥱ gᥙs𝗍ᥱᥒ ᥱᥣ ძ᥆ᥙᑲᥣᥱ𝖿ᥱძ᥆rᥲ, ᥣᥱs ȷᥙr᥆ 𝗊ᥙᥱ s᥆ᥡ col. (∩´͈ ᴖ `͈∩ ྀི)
 ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀
