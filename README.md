@@ -1,4 +1,4 @@
-𝔚hen you're blue, 𝔦'm red, i wanna 𝗸𝗶𝘀𝘀 your neck and make you 🟣 𝗮𝗹𝗹 𝗼𝘃𝗲𝗿.♥︎
+𝔚hen you're blue, 𝔦'm red, i wanna 𝗸𝗶𝘀𝘀 your neck and make you 🟣 𝗮𝗹𝗹 𝗼𝘃𝗲𝗿.♡
  ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ 
  
  ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀‍⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀  
