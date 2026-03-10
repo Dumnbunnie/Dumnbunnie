@@ -1,7 +1,6 @@
 
  ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀‍⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀  
-
-![cf5258c15bc36927a018036459a8cd99](https://github.com/user-attachments/assets/b2747e7a-20d6-4b89-b76c-a6777b7da901)
+![20260303_175856](https://github.com/user-attachments/assets/4add2284-0c7c-479b-bd5a-9742193acdef)
 
 
 
