@@ -1,4 +1,5 @@
-![86fa266366bac34b912ae82bab3ca6d3](https://github.com/user-attachments/assets/c190d64a-1264-4b81-8875-f07a329bec82)
+![38395d0c113006838c75603e57ca9a86](https://github.com/user-attachments/assets/7769bdcd-446a-4d5c-a409-a663a2d8d015)
+
 
 
  ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀‍⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀  
@@ -28,6 +29,4 @@
 
 
 
-
-
-ㅤ𝟯 Years. ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀⠀  ⠀ ⠀⠀ Yo y mi mjr amiga⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀
+ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀
