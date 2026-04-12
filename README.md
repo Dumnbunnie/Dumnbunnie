@@ -4,7 +4,7 @@
 
 
 
-AMOOOO DOUBLEFEDORA!! ˶╹ꇴ╹˶ PODRÍA HABLAR DE ELLOS TOOOODOOOO EL TIEMPO :33
+Gorfo y su omega
 
 
 
