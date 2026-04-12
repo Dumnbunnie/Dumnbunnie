@@ -4,7 +4,7 @@
 
 
 
-Gorfo y su omega
+Gordo y su omega
 
 
 
