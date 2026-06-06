@@ -1,10 +1,8 @@
-![20260411_013440 (1)](https://github.com/user-attachments/assets/386e5351-6cff-4249-b4fb-0902ab3ac4f4)
+![<img width="699" height="699" alt="a5898281f4c8dd2c069028529b7901bd" src="https://github.com/user-attachments/assets/af06b5ed-b4e5-4794-91fe-d3b1051d92b7" />
 
 
 
 
-
-Gordo y su omega
 
 
 
